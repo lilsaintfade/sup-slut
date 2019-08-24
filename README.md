@@ -8,4 +8,5 @@ a rags-to-riches tale, but rn she's in the rags part of her story
 she's hit rock bottom
 done dispicable things
 but, you'll get to know her.
-know she's not a totally terrible person–shit, maybe, you'll like her, she hopes.
+know she's not a totally terrible person
+shit, maybe, you'll like her, she hopes.
